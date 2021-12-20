@@ -1,0 +1,2 @@
+# trabalhando
+mineraçoes fortes
